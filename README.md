@@ -1,1 +1,1 @@
-# Die-L-wensteins-Vom-Erben-zum-Leader
+# Die-Löwensteins-Vom-Erben-zum-Leader
